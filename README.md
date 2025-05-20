@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zegrt
 - 👀 I’m interested in 3d art, film making and Game dev.
-- 🌱 I’m currently a Bachelor of Design; final-year student.
+- 🌱 I’m currently a 3d Generalist, Working for Flyfish Studios.
 - 💞️ I’m looking to collaborate on anything at all that you think i would find intersting!
 - 📫 Feel free to reach me on @ze.grt on instagram and 'Cyril C.P.' on artstation.
 
