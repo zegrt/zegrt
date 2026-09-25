@@ -2,7 +2,7 @@
 - 👀 I’m interested in 3d art, film making and Game dev.
 - 🌱 I’m currently a Motion designer
 - 💞️ I’m looking to collaborate on anything at all that you think i would find intersting!
-- 📫 Feel free to reach me on @ze.grt on instagram and 'Cyril C.P.' on artstation.
+- 📫 Feel free to reach me on @ze.grt on instagram and 'Cyril C.P.' on behance and artstation.
 
 <!---
 zegrt/zegrt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
